@@ -13,7 +13,5 @@ Hallo dunia!
  
  #Hati-hati menggunakan alat kami karna bisa membuat akun instagram kamu di blockir oleh pihak instagram. untuk menggunakan alat kami sebaiknya lakukan secara perlahan-lahan agar pihak instagram tidak curiga.
  
- ____________
  |Army Beast|
  |@Mr.Tiger |
- |__________|
